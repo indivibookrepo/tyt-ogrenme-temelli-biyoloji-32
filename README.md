@@ -1,0 +1,1 @@
+# tyt-ogrenme-temelli-biyoloji-32
